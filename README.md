@@ -1,0 +1,1 @@
+Servus, ich mache den codedex Git und Github Kurs und hab keine Ahnung wie der spaß hier funktioniert. Das einzige was ich weiß is das es fucking kompliziert ist.
